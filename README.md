@@ -1,5 +1,5 @@
 # Day 1
-
+31 July 2025
 ## 8:30 AM to 9:30 AM
 At the begining of the new chapter in life of college,college held a divine kirtan in gurdwara sahib for their students for the fresh and warm start of thier new acdemic life in the college.
 
@@ -39,6 +39,5 @@ Engineer Rakesh Kumar, an illustrious alumnus of the 1991 batch and currently th
 
 [img](https://www.facebook.com/photo.php?fbid=1175941527909893&set=pb.100064821697496.-2207520000&type=3)
 
-# DAY 2
-
 Further, the students had the opportunity to interact with Shri Ashok Singla, Financial Advisor, whose practical insights and encouraging words gave students a new lens through which to view their future.
+# DAY 2
