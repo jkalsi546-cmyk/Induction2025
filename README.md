@@ -40,4 +40,9 @@ Engineer Rakesh Kumar, an illustrious alumnus of the 1991 batch and currently th
 [img](https://www.facebook.com/photo.php?fbid=1175941527909893&set=pb.100064821697496.-2207520000&type=3)
 
 Further, the students had the opportunity to interact with Shri Ashok Singla, Financial Advisor, whose practical insights and encouraging words gave students a new lens through which to view their future.
+
+
+
 # DAY 2
+1 August 2025
+## 9:30 AM to 11:30 AM
