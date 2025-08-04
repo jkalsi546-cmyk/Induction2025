@@ -54,4 +54,4 @@ First from 9:30 AM to 10:30 AM, English proficiency test and then from 10:30 AM 
 After the test,there was a break from 11:30 AM to 1:00 PM,for students.Majority of students gathered near hostel no.2 for
 the tea and snacks
 
-##Auditorium
+## Auditorium
