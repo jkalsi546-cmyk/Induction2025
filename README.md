@@ -41,11 +41,17 @@ Engineer Rakesh Kumar, an illustrious alumnus of the 1991 batch and currently th
 
 Further, the students had the opportunity to interact with Shri Ashok Singla, Financial Advisor, whose practical insights and encouraging words gave students a new lens through which to view their future.
 
-
-
-
-
+___________________
 
 # DAY 2
 1 August 2025
 ## 9:30 AM to 11:30 AM
+Sudents of college conducted tests for B-tech IT students.
+First from 9:30 AM to 10:30 AM, English proficiency test and then from 10:30 AM to
+11:30 AM,maths proficiency test was taken.
+
+## Break 
+After the test,there was a break from 11:30 AM to 1:00 PM,for students.Majority of students gathered near hostel no.2 for
+the tea and snacks
+
+##Auditorium
