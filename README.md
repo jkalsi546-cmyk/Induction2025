@@ -55,3 +55,18 @@ After the test,there was a break from 11:30 AM to 1:00 PM,for students.Majority 
 the tea and snacks
 
 ## Auditorium
+
+
+# DAY 3
+2 August 2025
+## Auditorium 
+
+The day began with an enlightening session by Dr. Jaswinder Singh, a Siksharatan Awardee, who captivated the audience with live experiments and innovative approaches to teaching and learning.
+
+The highlight of the day was the address by the Chief Guest, Sardar Gurcharan Singh Grewal, member  Shiromani Gurdwara Parbandhak Committee (SGPC) and a respected member of the Nankana Sahib Education Trust. His motivational words encouraged students to stay grounded in values while aspiring for excellence in their academic journey.
+
+Following this, the next session was delivered by Dr. Priyadarshini, an esteemed expert in Universal Human Values. She spoke about the critical role of ethics and values in the field of engineering, education, and professional practice. Her session helped the students understand the importance of empathy, responsibility, and integrity in shaping a meaningful career and life.
+
+
+# DAY 4
+4 August 2025
