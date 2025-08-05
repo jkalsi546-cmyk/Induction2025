@@ -70,3 +70,16 @@ Following this, the next session was delivered by Dr. Priyadarshini, an esteemed
 
 # DAY 4
 4 August 2025
+## 9:30 AM to 10:30 AM, English Lecture 
+Students of IT-A and IT-B gathered in Mechanical Seminar Hall,for their english lecture,which was taken by Prof. Aastik Sharma.
+## 10:30 AM to 11:30 AM, Chemistry Lecture 
+Following the schedule of the day,the next lecture was of chemistry,in which Prof.Karan Bhalla introduced himself and show their teaching.
+## Break
+After chemistry lecture,there was break from 11:30 AM to 12:30 PM.
+## Auditorium 
+### 12:30 PM to 2:30 PM,Dr. Priya Darshini
+The session began with an insightful expert lecture by Dr. Priya Darshini on Universal Human Values in the auditorium, guiding students towards a more conscious and value-based life.
+### 2:30 PM to 3:30 PM,Causmic Club
+The Causmic Club team showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership, and innovation.
+
+# DAY 5
