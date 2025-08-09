@@ -63,10 +63,16 @@ the tea and snacks
 
 The day began with an enlightening session by Dr. Jaswinder Singh, a Siksharatan Awardee, who captivated the audience with live experiments and innovative approaches to teaching and learning.
 
+[img](facebook.com/photo/?fbid=1177517511085628&set=pcb.1177517871085592)
+
+
 The highlight of the day was the address by the Chief Guest, Sardar Gurcharan Singh Grewal, member  Shiromani Gurdwara Parbandhak Committee (SGPC) and a respected member of the Nankana Sahib Education Trust. His motivational words encouraged students to stay grounded in values while aspiring for excellence in their academic journey.
+
+[img](https://www.facebook.com/photo/?fbid=1177517694418943&set=pcb.1177517871085592)
 
 Following this, the next session was delivered by Dr. Priyadarshini, an esteemed expert in Universal Human Values. She spoke about the critical role of ethics and values in the field of engineering, education, and professional practice. Her session helped the students understand the importance of empathy, responsibility, and integrity in shaping a meaningful career and life.
 
+[img](https://www.facebook.com/photo/?fbid=1177517737752272&set=pcb.1177517871085592)
 
 # DAY 4
 4 August 2025
@@ -83,3 +89,14 @@ The session began with an insightful expert lecture by Dr. Priya Darshini on Uni
 The Causmic Club team showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership, and innovation.
 
 # DAY 5
+5 August 2025
+## Auditorium
+The day began with an insightful expert lecture by Dr. Priyadarshini on Universal Human Values in the auditorium, guiding students towards a more conscious and value-based life.
+
+[img](https://www.facebook.com/photo/?fbid=1179223054248407&set=pb.100064821697496.-2207520000)
+
+The Causmic Club team also showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership, and innovation.
+
+
+
+
